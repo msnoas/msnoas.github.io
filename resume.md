@@ -10,13 +10,10 @@ Jalan Lingkar Kampus IPB Dramaga\
 
 ## Pendidikan
 ### SMA Negeri 5 Kota Bengkulu
-
 Juli 2013-Juni 2016
 ### SMP Negeri 1 Kota Bengkulu
-
 Juli 2010-Juni 2013
 ### SD IT IQRA '1 Kota Bengkulu
-
 Juli 2004-Juni 2010
 
 ## Organisasi
